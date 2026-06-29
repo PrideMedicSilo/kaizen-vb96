@@ -1,4 +1,4 @@
-
+Experience kaizen like never before with elite kaizen Script, the #1 Script. Includes no clip and auto-farm for unbeatable performance.
 
 
 
